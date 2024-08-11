@@ -116,6 +116,6 @@
 
 ## Community and Support
 
-FOLLOW Viciouswrld WHAtSAPP CHANNEL FOR MORE UPDATES
+FOLLOW VICIOUS_WRLD WHAtSAPP GROUP FOR MORE UPDATES
 [![JOIN WHATSAPP GROUP](https://raw.githubusercontent.com/Neeraj-x0/Neeraj-x0/main/photos/suddidina-join-whatsapp.png)](https://chat.whatsapp.com/IxT3A1pG4f36k7cOWxf5Sb))
 
