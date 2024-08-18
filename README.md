@@ -100,7 +100,7 @@
 <br>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
-* [✅ Join Public Group ⚡](https://chat.whatsapp.com/IxT3A1pG4f36k7cOWxf5Sb)
+* [✅ Join Public Group ⚡](https://chat.whatsapp.com/F7df0oiLBLmHvbpKGh0s3A)
 
   <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
   
@@ -117,5 +117,5 @@
 ## Community and Support
 
 FOLLOW VICIOUS_WRLD WHAtSAPP GROUP FOR MORE UPDATES
-[![JOIN WHATSAPP GROUP](https://raw.githubusercontent.com/Neeraj-x0/Neeraj-x0/main/photos/suddidina-join-whatsapp.png)](https://chat.whatsapp.com/IxT3A1pG4f36k7cOWxf5Sb))
+[![JOIN WHATSAPP GROUP](https://raw.githubusercontent.com/Neeraj-x0/Neeraj-x0/main/photos/suddidina-join-whatsapp.png)](https://chat.whatsapp.com/F7df0oiLBLmHvbpKGh0s3A))
 
